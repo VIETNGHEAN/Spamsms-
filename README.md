@@ -1,1 +1,2 @@
-Xin chào Mình là Nguyễn Quốc Việt 1 thằng nhóc thích mày mò và học hỏi
+1 công cụ spam sms và call
+Lưu ký chỉ được sử dụng vào mục đính học tập và thử nghiệm nghiêm cấm hành vi phá hoại
